@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @Hitacium
+- 👋 Hi, I’m @Hitacium, a EDM producer !
 - 👀 I’m interested in music production, programming and aeronautic
 - 🌱 I’m currently learning 3D and programming
