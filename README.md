@@ -17,5 +17,3 @@ Software I use for those hobbies :
 - Affinity Photo
 - Davinci Resolve
 - Visual Studio
-
-Test of GitHub in VS Code
