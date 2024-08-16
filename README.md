@@ -1,4 +1,4 @@
-👋 Hi, I’m @Hitacium, a french guy still at highschool (I have 17yo) !
+👋 Hi, I’m @Hitacium, a french guy still in college (French : Je suis en MP2I au lycée Thiers) !
 
 👀 I’m interested into a LOT of things here some :
 
